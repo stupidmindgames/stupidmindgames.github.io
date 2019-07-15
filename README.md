@@ -1,0 +1,1 @@
+# stupidmindgames.github.io
